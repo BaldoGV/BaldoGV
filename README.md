@@ -5,7 +5,7 @@
 
 <br />
 
-Soy Baldo García. Actualmente estoy en proceso de formación como FRONT END🚀 acepto tips he información de valor que nos permita crecer como desarrolladores
+Soy Baldo García. Actualmente estoy en proceso de formación como FRONT END🚀 acepto tips he información de valor, que nos permita crecer como desarrolladores
 <br />
 <br />
 
